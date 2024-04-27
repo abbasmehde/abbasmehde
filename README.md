@@ -48,3 +48,15 @@ Check out my [CV](https://drive.google.com/file/d/10C6za41N0XYGe5sKGo0pf-WXnbqpa
   <img src="https://img.shields.io/badge/Calculus%20Expert-800000?style=for-the-badge" alt="Calculus Expert" />
 </div>
 
+## Get in Touch 📬
+
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/abbas-mehdi-512017278/).
+
+For any inquiries, you can reach out to me via email at [abbaskharal755@gmail.com](mailto:abbaskharal755@gmail.com).
+
+![Profile Views](https://komarev.com/ghpvc/?username=abbasmehde&color=orange)
+
+### Thank you for visiting my profile! 🌟
+
+I hope you found something interesting here. Have a fantastic day!
+
