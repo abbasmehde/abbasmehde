@@ -14,7 +14,7 @@ I’m an undergraduate student at [COMSATS University Islamabad](https://www.com
 
 These areas align perfectly with my personal interests. This combination of skills allows me to innovate at the crossroads of hardware and software, bridging intricate technological gaps.
 
-Check out my [CV](https://drive.google.com/file/d/10C6za41N0XYGe5sKGo0pf-WXnbqpaUjq/view?usp=sharing) 📄, and [GitHub Repositories](https://github.com/abbasmehde?tab=repositories) 📂 to learn more about me and my projects.
+Check out my [CV](https://drive.google.com/file/d/19OZvsUnE_9IuSg8YdbCVAnfaRBBG-D6y/view?usp=sharing) 📄, and [GitHub Repositories](https://github.com/abbasmehde?tab=repositories) 📂 to learn more about me and my projects.
 
 
 
